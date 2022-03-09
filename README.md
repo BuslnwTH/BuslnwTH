@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 🌱 I’m currently learning Hatyai District, Non-formal Education (NFE Hatyai)
+- 🌱 I’m currently learning Non-formal Educationม, Hatyai District (NFE Hatyai)

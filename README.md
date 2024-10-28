@@ -4,7 +4,7 @@
 
 ## About Me
 
-My name is bus. I’m 19 years old. My birthday is the 9 February 2004. I'm studying at <strong>District Learning Encouragement Center (DLE Hatyai)
+My name is bus. I’m 20 years old. My birthday is the 9 February 2004. 
 
 ## Coding Language
 
